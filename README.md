@@ -31,7 +31,7 @@ To be the leading provider of intelligent web solutions, known for our ingenuity
 ## Get in Touch
 Ready to elevate your online presence? Contact us today to discuss your project and discover how ArchipeLogic Website Solutions can help you achieve your digital goals.
 
-Email: info@archipelogic.com
-Phone: (818) 852-2252
-Location: Los Angeles, CA 91335
+-Email: info@archipelogic.com
+-Phone: (818) ***-2252
+-Location: Los Angeles, CA 91335
     
