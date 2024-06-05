@@ -26,7 +26,7 @@ To be the leading provider of intelligent web solutions, known for our ingenuity
 ## Meet the Team
 - **Cielito Thea:** Founder & Lead Developer
 - **TBD:** Creative Director
-- **TBD:** UX/UI Lead
+- **TBD:** SEO Specialist
 
 ## Get in Touch
 Ready to elevate your online presence? Contact us today to discuss your project and discover how ArchipeLogic Website Solutions can help you achieve your digital goals.
